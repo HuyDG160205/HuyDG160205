@@ -3,7 +3,7 @@
 
 - I am currently studying at: **FPT University**
 
-- You can contact me via: **minebinroyal1@gmail.com**
+- You can contact me via: **bintuc05@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
